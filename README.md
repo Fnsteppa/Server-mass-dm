@@ -8,4 +8,4 @@ uh so it massdm withwout perms
 
 | SS OF THE TOOL| 
 | ------------- | 
-| ![image](https://cdn.discordapp.com/attachments/855834309030051860/862853719591092234/unknown.png) |
+| ![image](https://media.discordapp.net/attachments/845712592948559873/870070839784136784/unknown.png?width=847&height=480) |
